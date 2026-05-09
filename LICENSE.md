@@ -1,4 +1,4 @@
-
+Get the ultimate Gimp for macOS extension with top Extension for Gimp for macOS - batch processing and AI-assisted design. Featuring batch processing and AI-assisted design, it's
 
 
 
